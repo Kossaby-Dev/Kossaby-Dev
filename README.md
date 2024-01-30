@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hi, I'm Yassine!:
 🔭 I’m currently working on Gwala
 
 
